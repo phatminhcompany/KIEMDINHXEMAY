@@ -1,4 +1,6 @@
 # KIEMDINHXEMAY
+![hd5167(hoadonmaythoichayxang2)](https://user-images.githubusercontent.com/113705782/190858634-a174c9ce-3c56-41ab-bb33-c4fffaab02ce.jpg)
+![kiemdinh10072(xe lu lop 11 banh 16 tan kawasaki)](https://user-images.githubusercontent.com/113705782/190858641-46cc084a-1340-428e-9b39-683510533a76.jpg)
 ![xe lu rungbomag](https://user-images.githubusercontent.com/113705782/190857957-ac79f711-7533-479a-96a6-c66219bb6ee2.jpg)
 ![kiemdinhxeludynapacmoi 2023](https://user-images.githubusercontent.com/113705782/190857995-fc398749-70bf-42b4-bbaf-53902603ade5.jpg)
 ![maythoi 2023](https://user-images.githubusercontent.com/113705782/190858003-2fbe3e6c-9919-4398-a8f6-4ee40ee28b70.jpg)
@@ -12,5 +14,5 @@
 ![xelu dan sat lopmoi](https://user-images.githubusercontent.com/113705782/190858019-59f1dd2f-bba3-45cc-8347-0ac89a857b4c.jpg)
 ![xelutinh1moi 11459](https://user-images.githubusercontent.com/113705782/190858020-4b5d41e1-e619-42fe-a40d-1e98282ab6a5.jpg)
 ![xelutinh2](https://user-images.githubusercontent.com/113705782/190858023-ed3153a5-b1c7-4f7b-8573-cc28516908b0.jpg)
-![xelutinh3](https://user-images.githubusercontent.com/113705782/190858024-460fcbd9-6210-45a1-876c-67d58e7d24cb.jpg)
+![kiemdinh10076(xe lu rung ingersollrand 6-8 tan )](https://user-images.githubusercontent.com/113705782/190858644-8e2020eb-f62c-4dfa-b87d-022b55dec6e3.jpg)
 ![xelutinh3moi](https://user-images.githubusercontent.com/113705782/190858026-95ba6c4f-9e94-4ab1-ae4c-af7f1fb26dcf.jpg)
