@@ -1,5 +1,4 @@
 # KIEMDINHXEMAY
-![hd5167(hoadonmaythoichayxang2)](https://user-images.githubusercontent.com/113705782/190858634-a174c9ce-3c56-41ab-bb33-c4fffaab02ce.jpg)
 ![kiemdinh10072(xe lu lop 11 banh 16 tan kawasaki)](https://user-images.githubusercontent.com/113705782/190858641-46cc084a-1340-428e-9b39-683510533a76.jpg)
 ![xe lu rungbomag](https://user-images.githubusercontent.com/113705782/190857957-ac79f711-7533-479a-96a6-c66219bb6ee2.jpg)
 ![kiemdinhxeludynapacmoi 2023](https://user-images.githubusercontent.com/113705782/190857995-fc398749-70bf-42b4-bbaf-53902603ade5.jpg)
